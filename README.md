@@ -27,4 +27,4 @@ info of round sign Price: 200 $
 Daily maintenance: 0 $  
 
 
-Hope you all like this mod , I have a lot of hard work &amp; time into it
+This FS25 game mod was made for fun, for firends and a fun project. Hope you all like this mod , I have a lot of hard work &amp; time into it
